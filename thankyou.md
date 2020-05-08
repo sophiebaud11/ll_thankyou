@@ -7,20 +7,29 @@ From all of us LLUFs, thank you for your support and understanding throughout th
 While all of us send our thanks, a bunch of LLUFs have written/designed/recorded some of their own unique creations to do so:
 
 From Brenda:
+
 ![thanks from Brenda](ll_ty.gif)
 
 From Uzo:
+
 ![thanks from Uzo](lluf-animation.mp4)
+<img src=lluf-animation.mp4 alt="thanks from Uzo" />
 
 From Shivi:
+
 ![thanks from Shivi](lluf.gif)
 
 From Sophie W:
 "Thank you to Jordan, Marlon, Katie, Lauren, and so many others who have made this semester (and year!) of LLUFing so wonderful! You guys inspire me every day with your creativity and kindness, and I'm so grateful for the amazing community I've found at the Bok Center <3"
 
 From Sophie B (and her cats):
+
 ![thanks from Sophie B's cats](cat_thanks.png)
 
 From Kathryn:
+
 ![thanks from Kathryn](ty-ll-staff.gif)
+
+
+WE LOVE YOU ALL <3 HAGS!!!!
 
