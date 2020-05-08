@@ -13,7 +13,6 @@ From Brenda:
 From Uzo:
 
 ![thanks from Uzo](lluf-animation.mp4)
-<img src=lluf-animation.mp4 alt="thanks from Uzo" />
 
 From Shivi:
 
